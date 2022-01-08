@@ -1,6 +1,7 @@
 #### 抖音App是全球最受欢迎的短视频应用，抖音海外版TikTok横扫全球下载量常居榜首。这是最新抖音国际版破解版，无视封锁和下载限制，国内免拔卡，去除了广告，下载视频无水印，适用国际地区网络的全球版。
 
-
+#### 抖音海外版TikTok破解版下载地址  https://www.mediafire.com/file/qif52wo5gb34kmn/TikTok_v.zip/file
+#### 91抖音成人版下载地址（禁止未成年人打开） https://v.hallo365.top 
 
 	
 
